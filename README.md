@@ -31,6 +31,6 @@ A big thank you to all contributors and frameworks that have supported the devel
 
 📧 **Contact**
 
-Questions or feedback? Reach out to adithyanagendragummadi2004@gmail.com.
+Questions or feedback? Reach out to  meghanabhavanam7@gmail.com.
 
  
